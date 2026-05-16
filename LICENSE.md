@@ -1,4 +1,4 @@
-# 
+# custom trader joe trading bot Tool | impermanent-loss-protection + cross-chain-arbitrage offers the most advanced trader joe trading bot, with impermanent-loss-protection and
 
 
 
